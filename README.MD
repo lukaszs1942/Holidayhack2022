@@ -1,1 +1,1 @@
-Here i will add writeup once submission date will be over
+Kringlecon 2022 Holiday Hack Report is now live!
